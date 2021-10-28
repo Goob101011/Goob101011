@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Goob101011 or you can just call me Goob!
+- 👀 I’m interested in learning code and making games maybe
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on anything unity
+- 📫 How to reach me my email awesomeman101011@gmail.com (ik very cringe i made this when i was 8)
